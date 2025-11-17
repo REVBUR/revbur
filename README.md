@@ -1,7 +1,7 @@
 ##### ⠀❝  cemetery baby i want you in my world ❞
 ![](https://i.postimg.cc/CxSSk56v/Untitled559-20251116213540.png)
     <p align="center">
-        Rev / [Bri](https://pronouns.cc/@pupbrian)⠀💥 
+        Rev / [Bri](https://pronouns.cc/@revbur)⠀💥 
         14yrs⠀⠀⠀single
     </p>
         <p align="center">

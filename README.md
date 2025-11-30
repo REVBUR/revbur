@@ -5,7 +5,7 @@
         14yrs⠀⠀⠀single
     </p>
         <p align="center">
-        it he ~~ask 4 neos~~⠀⠀masc ` nh trms
+        it he ~~ask 4 neos~~⠀⠀masc ` nh trms [discord](https://discord.gg/FRZkzWSj2S)
     </p>
     <p align="center">
   <p align="center">
